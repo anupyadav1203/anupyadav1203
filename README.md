@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me :anupyadav1569@gmail.com
 - insta: https://www.instagram.com/anupyadav_1203/...
-
+- i`m regular on my gmail, instagram
 <!---
 anupyadav1203/anupyadav1203 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
